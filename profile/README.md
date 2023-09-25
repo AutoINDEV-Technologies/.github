@@ -1,6 +1,11 @@
 ![BlogMainGithub](https://github.com/INDEV-Technologies/.github/assets/126918321/c2c67786-f322-4376-b50f-6a3c1dc603fd)
 
-Founder of a sub-company by Saúl Alejandro at INDEV Inc. This sub-campaign its design Computer software. for games, currently working on INDEX 2.0 (2nd Gen) by December 30, 2023
+# Biography of INDEV
+Who where the first humans to tell their histories in caves, connecting the art, natural & Science which left us New Horizons, Who capture a horse moving, spark a engine to life, make a television into a playground. everyday will make the playful, the functional and the unexpected, will break down walls and to take us to astonishing places, tell stories, meet new walls and create Beauty for the future and tomorrow, because INDEV we believe we can change the view of the future every chance that there are to, Shape the World. 
+
+(Shape the World, how will desire)
+
+- Saúl Alejandro Gonzalez  
 
 <h1>INDEX 2</h1>
 <p align="center">
