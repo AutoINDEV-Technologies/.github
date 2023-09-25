@@ -1,7 +1,7 @@
 ![BlogMainGithub](https://github.com/INDEV-Technologies/.github/assets/126918321/c2c67786-f322-4376-b50f-6a3c1dc603fd)
 
 # Biography of INDEV
-Who where the first humans to tell their histories in caves, connecting the art, natural & Science which left us New Horizons, Who capture a horse moving, spark a engine to life, make a television into a playground. everyday will make the playful, the functional and the unexpected, will break down walls and to take us to astonishing places, tell stories, meet new walls and create Beauty for the future and tomorrow, because INDEV we believe we can change the view of the future every chance that there are to, Shape the World. 
+Who where the first humans to tell their stories in caves, connecting the art, natural & Science which left us New Horizons, Who capture a horse moving, spark a engine to life, make a television into a playground. everyday will make the playful, the functional and the unexpected, will break down walls and to take us to astonishing places, tell stories, meet new walls and create Beauty for the future and tomorrow, because INDEV we believe we can change the view of the future every chance that there are to, Shape the World. 
 
 (Shape the World, how will desire)
 
